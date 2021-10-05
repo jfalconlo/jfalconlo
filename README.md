@@ -1,0 +1,5 @@
+- 👋 Hi, I'm @jfalconlo
+- 👀 I am interested in Java, Kotlint and Software Development in General
+- 🌱 I'm currently learning 2ºDAM
+- 💞️ I'm looking to collaborate on ...
+- 📫 How to contact me Instragam @jfalconlo
