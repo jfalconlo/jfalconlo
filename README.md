@@ -3,4 +3,3 @@
 - 🌱 I'm currently learning 2ºDAM
 - 💞️ I'm looking to collaborate on different types of project
 - 📫 How to contact me on Instragam @jfalconlo
-- 
